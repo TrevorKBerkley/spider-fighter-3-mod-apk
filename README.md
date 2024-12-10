@@ -3,7 +3,7 @@
 ## What is Spider Fighter 3 Mod APK?  
 **Spider Fighter 3 Mod APK** is an exciting superhero action game where players take on the role of a spider-powered hero battling crime in a sprawling urban landscape. Developed by Starplay DMCC, this Android game combines open-world exploration, strategic combat, and heroic missions to save the city from chaos. With dynamic challenges and enhanced MOD features, players can enjoy unlimited money and unlock all characters for an upgraded gaming experience.  
 
-# 👉🏻Download Now : https://modhello.com/spider-fighter-3/ ⬇️
+## 👉🏻Download Now : https://modhello.com/spider-fighter-3/ ⬇️
 
 ## Features of Spider Fighter 3  
 Spider Fighter 3 comes packed with features that elevate its gameplay and visual appeal.  
